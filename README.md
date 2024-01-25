@@ -10,12 +10,10 @@ dnb bnewd
 dnbqn
 nsacbnsabcs
 cnsabcnsabmca\csanb
-csamncm
-bsavbsabnsa
-sb bsababs
-bsabsan
-snbsa
-nb cbdsbcad
+mad 
+max
+fury
+road
 oreo
 buzz
 simbha
