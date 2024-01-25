@@ -16,20 +16,6 @@ sb bsababs
 bsabsan
 snbsa
 nb cbdsbcad
-csnb can
-csc ns
-csanba
-babdna
-csbca
-bc d nc d
-vcand nmas 
-vna a 
-nvsa vnmsa
-vna m
-va
-nbs b an
-cb dsansa
-sc asn
-  dccm mca
-  cnads c
-  csa
+oreo
+buzz
+simbha
